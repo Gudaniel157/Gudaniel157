@@ -12,6 +12,6 @@ gudaniel@gmail.com
 
 @Guhh.013
 
-!{}![image](https://github.com/user-attachments/assets/bf30a6a4-6576-4f82-b90c-98a91eeb00ea)
+{![image](https://github.com/user-attachments/assets/bf30a6a4-6576-4f82-b90c-98a91eeb00ea)
 ![image](https://github.com/user-attachments/assets/bf30a6a4-6576-4f82-b90c-98a91eeb00ea)
 
